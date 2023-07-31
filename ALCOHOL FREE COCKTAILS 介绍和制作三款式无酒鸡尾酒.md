@@ -2,7 +2,7 @@ ALCOHOL FREE COCKTAILS 介绍和制作三款式无酒鸡尾酒
 
 青柠草莓无酒鸡尾酒
 
-
+![青柠草莓无酒鸡尾酒]https://github.com/ywangnccu/ywang/blob/main/images/ALCOHOL%20FREE%20COCKTAILS.jpg)
 https://tinyurl.com/yf9pepmy
 
 用料
@@ -20,7 +20,7 @@ https://tinyurl.com/yf9pepmy
 
 意大式浓咖啡无酒鸡尾酒饮品
 
-
+![意大式浓咖啡无酒鸡尾酒饮品]( https://github.com/ywangnccu/ywang/blob/main/images/ALCOHOLFREECOCKTAILS1.jpg)
 https://tinyurl.com/y7f5ddzu
 
 用料
@@ -36,7 +36,7 @@ https://tinyurl.com/y7f5ddzu
 
 柠檬无酒鸡尾酒饮品
 
-
+![柠檬无酒鸡尾酒饮品]( https://github.com/ywangnccu/ywang/blob/main/images/ALCOHOLFREECOCKTAILS.jpg)
 https://tinyurl.com/y4fkeh4d
 
 用料
