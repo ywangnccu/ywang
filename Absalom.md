@@ -1,6 +1,7 @@
 THE STORY OF PRINCE ABSALOM
 
 ![Absalom](https://github.com/ywangnccu/ywang/blob/main/images/Absalom.jpg)
+
 https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQbCA1KdYlAj5LI-0fgWYkXW80IVO0L5Ajyvw&usqp=CAU
 
 Absalom was the third son of King David. The bulk of Absalom’s story is told by Bible.
