@@ -8,6 +8,7 @@ That’s the way the world works.
 
 Unfortunately, the world also has pitfalls that can ultimately destroy the successful if they’re not vigilant. 
 The Bible has many examples. Let’s look at Gideon from the book of Judges.
+
  ![GIDEON](https://github.com/ywangnccu/ywang/blob/main/images/GIDEON.jpg)
 
  https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTYOrm-hQuojUPSeieNmI7vGTo8R7poAUrcvA&usqp=CAU
