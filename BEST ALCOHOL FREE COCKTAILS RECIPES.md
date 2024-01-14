@@ -133,7 +133,7 @@ Strain into a class glass over refreshing ice cubes. Top with the club soda. Gar
  
 GIMLET COCKTAIL RECIPE
 
-![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail16.JPG)
+![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail16.jpg)
 
 https://rb.gy/fw5kyz
 
@@ -159,7 +159,7 @@ In a shaker, muddle the strawberries, mint, lime juice and simple syrup to a jui
  
 MOJITO COCKTAIL RECIPE
 
-![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail20.JPG)
+![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail20.jpg)
 
 https://shorturl.at/bgqG1
 
@@ -170,7 +170,7 @@ In a glass, muddle the mint leaves, sugar, gin and lime juice. Add ice and pour 
 
 PORN STAR MARTINI COCKTAIL RECIPE
 
-![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail30.JPG)
+![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail30.jpg)
 
 https://rb.gy/drbaeo
 
