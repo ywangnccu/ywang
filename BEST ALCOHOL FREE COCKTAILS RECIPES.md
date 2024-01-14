@@ -2,7 +2,7 @@ BEST ALCOHOL FREE COCKTAILS RECIPES
 
 COFFEE MARTINI COCKTAIL
 
-![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCoffeeMartiniMocktail.JPG)
+![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCoffeeMartiniMocktail.jpg)
 
 https://rb.gy/prfgl3
 
