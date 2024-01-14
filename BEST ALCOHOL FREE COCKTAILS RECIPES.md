@@ -80,7 +80,7 @@ Shake and strain into a highball glass filled with fresh pebble ice. Top with gi
 
 BRAMBLE COCKTAIL RECIPE
 
-![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail6.JPG)
+![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail6.jpg)
 
 https://images.squarespace-cdn.com/content/v1/5402e23ce4b0a7034afad3a2/b5c8fc5d-c156-4728-90a5-8f45fa631d5e/Bramble+mocktail+recipe.jpg?format=1000w
 
@@ -93,7 +93,7 @@ Drizzle the juice over ice. Garnish with lemon and blackberries. Serve and enjoy
 
 FRENCH COCKTAIL RECIPE
 
-![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail9.JPG)
+![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail9.jpg)
 
 https://tinyurl.com/3mfx8mhe
 
