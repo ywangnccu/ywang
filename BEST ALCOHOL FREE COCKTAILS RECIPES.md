@@ -104,7 +104,7 @@ Shake the gin, simple syrup and lemon juice with ice. Strain into a champagne fl
 
 MARTINI COCKTAIL RECIPE
 
-![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail13.JPG)
+![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail13.jpg)
 
 https://rb.gy/yvhwit
 
