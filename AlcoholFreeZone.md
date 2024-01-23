@@ -22,7 +22,7 @@ The riverfront at Covington, Ohio was established as an alcohol free zone circa 
 
 (I appreciate Wikipedia for providing the above information. Please let me know if it goes against the copyright.)
 
-    What do we know? What don’t we know?
+What do we know? What don’t we know?
 
 The CDC Community Guide summarizes the Community Preventive Services Task Force recommendations on the effects of alcohol policies on health. 
 There is little known on the impact of alcohol social districts by name. However, by breaking alcohol social districts down into components, 
