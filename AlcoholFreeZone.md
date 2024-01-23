@@ -42,26 +42,36 @@ Youth are susceptible to alcohol advertising, normalizing, and exposure.
 Proximity of alcohol social districts to schools and teen social areas could 
 increase their exposure to alcohol and normalize their views of alcohol consumption that could be associated with increases in youth drinking.
 
--        Increasing excessive alcohol consumption has a high societal cost. While proponents of alcohol social districts may state that the districts could increase local business or tax revenue, the economic cost of alcohol-related harms to local NC communities of nearly $10 billion each year could offset the potential new revenue.
+Increasing excessive alcohol consumption has a high societal cost. 
+While proponents of alcohol social districts may state that the districts could increase local business or tax revenue, 
+the economic cost of alcohol-related harms to local NC communities of nearly $10 billion each year could offset the potential new revenue.
 
--        People in recovery can be particularly sensitive to increased promotion and normalization of drinking. Research has found that individuals with alcohol dependence are more impacted by advertising.
+People in recovery can be particularly sensitive to increased promotion and normalization of drinking. 
+Research has found that individuals with alcohol dependence are more impacted by advertising.
 
--        Alcohol-related harms and policies often disproportionately impact Black, Indigenous, and People of Color (BIPOC) communities. Off-premises outlets are often denser in BIPOC communities.
+Alcohol-related harms and policies often disproportionately impact Black, Indigenous, and People of Color (BIPOC) communities. 
+Off-premises outlets are often denser in BIPOC communities.
 
--        Commuting and Equity. Those who live nearby entertainment and tourist districts may sometimes experience the health consequences of alcohol outlets more than those who travel there to spend money.
+Commuting and Equity. Those who live nearby entertainment and tourist districts may sometimes experience the health consequences of alcohol outlets 
+more than those who travel there to spend money.
 
 What can locals do?
 
--        Locals can create their own local evaluation plans by tracking changes like hours of sale, price and promotion changes, youth exposure to advertising, actual business revenue, practical changes in business, and alcohol-impaired driving enforcement.
+Locals can create their own local evaluation plans by tracking changes like hours of sale, price and promotion changes, 
+youth exposure to advertising, actual business revenue, practical changes in business, and alcohol-impaired driving enforcement.
 
--        Local health departments may be able to assist in evaluation planning and execution. Local health departments may also be able to provide guidance for health promotion messaging within the district.
+Local health departments may be able to assist in evaluation planning and execution. 
+Local health departments may also be able to provide guidance for health promotion messaging within the district.
 
--        Locals and organizations can educate their city councils, county commissioners, and community members; provide public comments; write op-eds to local papers; or distribute press releases.
+Locals and organizations can educate their city councils, county commissioners, and community members; provide public comments; 
+write op-eds to local papers; or distribute press releases.
 
--       Use the NC Public Health Alcohol Data Dashboard to get data and talk about it for your county.
+Use the NC Public Health Alcohol Data Dashboard to get data and talk about it for your county.
 
--       Business owners can track changes to revenue, share about their own experiences, and track unseen impacts like those to liability insurance and actual revenue impacts.
+Business owners can track changes to revenue, share about their own experiences, 
+and track unseen impacts like those to liability insurance and actual revenue impacts.
 
--       Unlike some states, NC preempts localities from many alcohol-related policies that protect health, like increasing excise taxes or making businesses share liability for selling to minors.
+Unlike some states, NC preempts localities from many alcohol-related policies that protect health, 
+like increasing excise taxes or making businesses share liability for selling to minors.
 
 (I appreciate UNC-CH IPRC for providing the above information. Please let me know if it goes against the copyright.)
