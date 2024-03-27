@@ -1,6 +1,37 @@
 BEST ALCOHOL FREE COCKTAILS RECIPES
 
-COFFEE MARTINI COCKTAIL
+This article is introducing 13 Alcohol Free Cocktails.
+
+    ALCOHOL FREE COFFEE MARTINI COCKTAIL
+
+    ALCOHOL FREE PINEAPPLE MINT TEA
+
+    ALCOHOL FREE BLACKBERRY NOJITO COCKTAIL
+
+    ALCOHOL FREE SPICY MARGARITA COCKTAIL
+
+    ALCOHOL FREE BERRY SMASH COCKTAIL
+
+    ALCOHOL FREE BRAMBLE COCKTAIL
+
+    ALCOHOL FREE FRENCH ALCOHOL RECIPE
+
+    ALCOHOL FREE MARTINI ALCOHOL RECIPE
+
+    ALCOHOL FREE MINT-BASIL LIMEADE COCKTAIL
+
+    ALCOHOL FREE GIMLET COCKTAIL 
+
+    ALCOHOL FREE STRAWBERRY CRUSH COCKTAIL
+
+    ALCOHOL FREE MOJITO COCKTAIL
+
+    ALCOHOL FREE PORN STAR MARTINI COCKTAIL
+
+Let us read the following recipes.
+
+
+ALCOHOL FREE COFFEE MARTINI COCKTAIL RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCoffeeMartiniMocktail.jpg)
 
@@ -12,7 +43,7 @@ Add your ingredients (apart from the garnish) to a shaker filled with ice.
 Shake well and then strain into a chilled martini glass. Allow the foam to rise and sit on top. Garnish and enjoy!
 
 
-PINEAPPLE MINT TEA
+ALCOHOL FREE PINEAPPLE MINT TEA RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail.JPG)
 
@@ -29,7 +60,7 @@ Blend to smooth, then pass through a sieve into a jug. Add some ice cubes to the
 Fill tall glasses with ice cubes and mint leaves, top up with the pineapple mint tea and serve immediately.
 
  
-BLACKBERRY NOJITO COCKTAIL
+ALCOHOL FREE BLACKBERRY NOJITO COCKTAIL RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail1.JPG)
 
@@ -48,7 +79,7 @@ Stir to mix and dissolve the sugar into the juice and vinegar. Add the mint leav
 Add a generous amount of ice cubes and top up with the soda water to taste. Stir to combine, then serve.
 
 
-SPICY MARGARITA COCKTAIL
+ALCOHOL FREE SPICY MARGARITA COCKTAIL RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail3.JPG)
 
@@ -63,7 +94,7 @@ Dissolve some sugar in water and marinate the slices of jalapeno in the sugar wa
 Add ice, the jalapeno syrup, lime juice and tonic water to your glass and mix. Garnish with lime and jalapeno slices and stir.
 
 
-BERRY SMASH COCKTAIL
+ALCOHOL FREE BERRY SMASH COCKTAIL RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail5.JPG)
 
@@ -78,7 +109,7 @@ In a shaker, muddle fruit and mint leaves with simple syrup. Add remaining ingre
 Shake and strain into a highball glass filled with fresh pebble ice. Top with ginger beer. Garnish with a mint sprig and powdered sugar.
 
 
-BRAMBLE COCKTAIL RECIPE
+ALCOHOL FREE BRAMBLE COCKTAIL RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail6.jpg)
 
@@ -91,7 +122,7 @@ Shake the gin, lemon juice and sugar syrup with lots of ice. Strain into a glass
 Drizzle the juice over ice. Garnish with lemon and blackberries. Serve and enjoy!
 
 
-FRENCH COCKTAIL RECIPE
+ALCOHOL FREE FRENCH COCKTAIL RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail9.jpg)
 
@@ -102,7 +133,7 @@ Ingredients - 30ml alcohol-free gin, 15ml lemon juice, 15ml simple syrup, alcoho
 Shake the gin, simple syrup and lemon juice with ice. Strain into a champagne flute. Top with the sparkling wine, garnish and enjoy!
 
 
-MARTINI COCKTAIL RECIPE
+ALCOHOL FREE MARTINI COCKTAIL RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail13.jpg)
 
@@ -115,7 +146,7 @@ Add the gin and vermouth to a stirring glass (or shaker) with ice and stir gentl
 Strain into a chilled martini glass. Squeeze the lemon peel over the cocktail to release its oils, garnish and serve. Enjoy!
 
  
-MINT-BASIL LIMEADE COCKTAIL
+ALCOHOL FREE MINT-BASIL LIMEADE COCKTAIL RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail15.JPG)
 
@@ -131,7 +162,7 @@ Gently muddle the basil, mint and simple syrup in a shaker tin. Add the lime jui
 Strain into a class glass over refreshing ice cubes. Top with the club soda. Garnish with a slice of lime.
 
  
-GIMLET COCKTAIL RECIPE
+ALCOHOL FREE GIMLET COCKTAIL RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail16.jpg)
 
@@ -143,7 +174,7 @@ Add the gin and the cordial to a shaker with lots of ice.
 Shake enough and then pour into a chilled coupe glass. Serve with a slice of lime and enjoy!
 
 
-STRAWBERRY CRUSH COCKTAIL
+ALCOHOL FREE STRAWBERRY CRUSH COCKTAIL RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail19.JPG)
 
@@ -157,7 +188,7 @@ Ingredients - 150g strawberries, 2/3 tablespoon caster sugar, mint sprigs, ice c
 In a shaker, muddle the strawberries, mint, lime juice and simple syrup to a juicy pulp. Pour (unstrained) into a tall Collins glass. Fill with crushed ice and top with ginger beer. Garnish with an additional strawberry and mint sprig.
 
  
-MOJITO COCKTAIL RECIPE
+ALCOHOL FREE MOJITO COCKTAIL RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail20.jpg)
 
@@ -168,7 +199,7 @@ Ingredients - 50ml alcohol-free gin, 1 teaspoon sugar, Juice of 1 lime, Soda wat
 In a glass, muddle the mint leaves, sugar, gin and lime juice. Add ice and pour over the soda water. Garnish, serve and enjoy!
 
 
-PORN STAR MARTINI COCKTAIL RECIPE
+ALCOHOL FREE PORN STAR MARTINI COCKTAIL RECIPE
 
 ![Free Alcohol Cocktail](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholCocktails/FreeAlcoholCocktail30.jpg)
 
