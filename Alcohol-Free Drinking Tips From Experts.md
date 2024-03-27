@@ -1,4 +1,4 @@
-Alcohol-Free Drinking Tips From The Experts
+Alcohol-Free Drinking Tips From Experts
 
 You don’t need alcohol in your drink to make it feel special. Drinks can be just as fun without the hard stuff.
 
