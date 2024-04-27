@@ -13,7 +13,7 @@ https://i5.walmartimages.com/asr/37710007-3a18-4226-a3a0-3fd266b5192c_1.54a6e1e4
 
 https://cdn1.skinsafeproducts.com/photo/B9F5A223C5539D/medium_1519761026.jpegjpeg?1519761026
 
-![Alcohol Free Products](https://github.com/ywangnccu/ywang/blob/main/images/AlcoholFreeProduct/AlcoholFreeProduct5.jpg)
+![Alcohol Free Products](https://github.com/ywangnccu/ywang/blob/main/images/AlcoholFreeProduct/AlcoholFreeProduct5.jpeg)
 
 https://i5.walmartimages.com/seo/Neutrogena-Makeup-Remover-Cleansing-Face-Wipes-Daily-Facial-Towelettes-Remove-Waterproof-Mascara-Alcohol-Free-Value-Twin-Pack-25-count-2-Pack_721e9b8a-faa0-42b7-919e-3ccc04a5a6ad.d79376550edc4449eeb2d366a63ded06.jpeg
 
@@ -21,7 +21,7 @@ https://i5.walmartimages.com/seo/Neutrogena-Makeup-Remover-Cleansing-Face-Wipes-
 
 https://www.neutrogena.com.ph/sites/neutrogena_ph/files/styles/product_image/public/product-images/alcohol_free_toner_meta-min.jpg
 
-![Alcohol Free Products](https://github.com/ywangnccu/ywang/blob/main/images/AlcoholFreeProduct/AlcoholFreeProduct9.jpg)
+![Alcohol Free Products](https://github.com/ywangnccu/ywang/blob/main/images/AlcoholFreeProduct/AlcoholFreeProduct9.png)
 
 https://e22d0640933e3c7f8c86-34aee0c49088be50e3ac6555f6c963fb.ssl.cf2.rackcdn.com/8883a2ae-5aa0-4410-b555-8222b3f25df3_large.png
 
