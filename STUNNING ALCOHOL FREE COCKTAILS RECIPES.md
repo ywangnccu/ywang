@@ -1,6 +1,6 @@
-BEST ALCOHOL FREE COCKTAILS RECIPES
+STUNNING ALCOHOL FREE COCKTAILS RECIPES
 
-This article is introducing 13 Alcohol Free Cocktails.
+This article is introducing 13 stunning Alcohol Free Cocktails.
 
     ALCOHOL FREE COFFEE MARTINI COCKTAIL
 
