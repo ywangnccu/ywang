@@ -3,12 +3,11 @@ Alcohol Free Zone
 ![Alcohol Free Zone](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholZone.png)
 
 https://shorturl.at/ktPTV
-
-An alcohol free zone, or dry zone, is a geographic area, location or establishment where the public consumption and sale of alcoholic beverages is prohibited. 
-Alcohol free zones have been established in some areas to address problems with drinking- and binge drinking-related crime, 
+The healthy alcohol free zone, or dry zone, is a geographic area, location or establishment where the public consumption and sale of alcoholic beverages is prohibited. 
+The healthy Alcohol free zones have been established in some areas to address problems with drinking- and binge drinking-related crime, 
 antisocial behavior, assaults and disorderly behavior.
 
-The first alcohol free zone established in the United Kingdom was in Coventry, England. 
+The first healthy alcohol free zone established in the United Kingdom was in Coventry, England. 
 Boston, Lincolnshire established a street drinking ban in January 2015 to address concerns with the antisocial problems associated with public alcohol consumption. 
 Under rules of the ban, those caught drinking in these areas can be fined £100 for a first offense. 
 Additionally, those that are requested to stop drinking and continue to do so can receive a fine of up to £500. 
