@@ -103,7 +103,7 @@ When hardened, slice into squares. Enjoy!
 
 Cookies
 
-![DESSERT](https://github.com/ywangnccu/ywang/blob/main/images/DESSERT/DESSERT5.jpg)
+![DESSERT](https://github.com/ywangnccu/ywang/blob/main/images/DESSERT/DESSERT5.JPG)
 
 https://theclassybaker.com/wp-content/uploads/2022/05/matcha-cookies-17.jpg
 
