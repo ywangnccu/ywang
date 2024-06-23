@@ -1,6 +1,6 @@
  HOW TO OVEN BAKE STUNNING DRIED PEACH CHIPS SNACK
 
- Oven dried peach chips are a delicious snack.  
+ Oven dried peak-season peach chips are a delicious snack.  
  Peach snacks can be enjoyed by everyone because they are vegan. Whole30 compatible and contain no added sugar!
 
 ![Peach Chip Snack](https://github.com/ywangnccu/ywang/blob/main/images/PeachChipSnack.jpg)
