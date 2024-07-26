@@ -59,7 +59,7 @@ GLUTEN FREE COFFEE ICE CREAM
 
 CAN YOU GUESS THIS ICE CREAM?
 
-![GUESS THE ICE CREAM FLAVOR](https://github.com/ywangnccu/ywang/blob/main/images/IceCream/ROCKROAD.jpg)
+![GUESS THE ICE CREAM FLAVOR](https://github.com/ywangnccu/ywang/blob/main/images/IceCream/ROCKYROAD.jpg)
 
 ORIGINAL ROCKY ROAD ICE CREAM
 
