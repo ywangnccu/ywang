@@ -40,7 +40,7 @@ https://rb.gy/prfgl3
 Ingredients - 50ml alcohol-free gin, 15ml alcohol-free coffee liqueur, 30ml coffee
 
 Add your ingredients (apart from the garnish) to a shaker filled with ice. 
-Shake well and then strain into a chilled martini glass. Allow the foam to rise and sit on top. Garnish and enjoy!
+Shake well and then strain into a chilled martini cup. Allow the foam to rise and sit on top. Garnish and enjoy!
 
 
 ALCOHOL FREE PINEAPPLE MINT TEA RECIPE
@@ -73,7 +73,7 @@ Shake, mix, sip and enjoy!
 Ingredients - 6 blackberries, 1 tsp cider vinegar, 3 tsp granulated sugar​, lime juice (about 1/2lime), 
 fresh mint leaves, ice cubes and soda water to taste
 
-Put the blackberries, vinegar, sugar and lime juice in a highball glass or other high-sided tumbler. 
+Put the blackberries, vinegar, sugar and lime juice in a high-sided tumbler or cup. 
 Gently press with a muddler or the end of a wooden spoon to lightly crush some of the blackberries. 
 Stir to mix and dissolve the sugar into the juice and vinegar. Add the mint leaves and stir again. 
 Add a generous amount of ice cubes and top up with the soda water to taste. Stir to combine, then serve.
@@ -91,7 +91,7 @@ A deliciously refreshing drink that will add some oomph to you.
 Ingredients - Sugar, lime, Jalapeno’s, Tajin and tonic water
 
 Dissolve some sugar in water and marinate the slices of jalapeno in the sugar water for making the Jalapeno simple syrup. 
-Add ice, the jalapeno syrup, lime juice and tonic water to your glass and mix. Garnish with lime and jalapeno slices and stir.
+Add ice, the jalapeno syrup, lime juice and tonic water to your cup and mix. Garnish with lime and jalapeno slices and stir.
 
 
 ALCOHOL FREE BERRY SMASH COCKTAIL RECIPE
@@ -106,7 +106,7 @@ Whether you and your friends are going out of the event,
 Ingredients - 6 strawberry, 3 Raspberries, cranberry juice, ice cubes, 5 blueberry, 50ml pomegranate juice, 1/2 teaspoon caster sugar
 
 In a shaker, muddle fruit and mint leaves with simple syrup. Add remaining ingredients to the shaker and fill with ice cubes. 
-Shake and strain into a highball glass filled with fresh pebble ice. Top with ginger beer. Garnish with a mint sprig and powdered sugar.
+Shake and strain into a cup filled with fresh pebble ice. Top with ginger beer. Garnish with a mint sprig and powdered sugar.
 
 
 ALCOHOL FREE BRAMBLE COCKTAIL RECIPE
@@ -118,7 +118,7 @@ https://images.squarespace-cdn.com/content/v1/5402e23ce4b0a7034afad3a2/b5c8fc5d-
 Ingredients - 50ml alcohol-free gin, 30ml freshly squeezed lemon juice, 15ml simple syrup, 15ml blackberry juice, 
 Lemon slice for garnish, fresh (or thawed) blackberries for garnish, small ice cubes
 
-Shake the gin, lemon juice and sugar syrup with lots of ice. Strain into a glass filled with ice. 
+Shake the gin, lemon juice and sugar syrup with lots of ice. Strain into a cup filled with ice. 
 Drizzle the juice over ice. Garnish with lemon and blackberries. Serve and enjoy!
 
 
@@ -130,7 +130,7 @@ https://tinyurl.com/3mfx8mhe
 
 Ingredients - 30ml alcohol-free gin, 15ml lemon juice, 15ml simple syrup, alcohol-free sparkling wine, Lemon peel twist for garnish
 
-Shake the gin, simple syrup and lemon juice with ice. Strain into a champagne flute. Top with the sparkling wine, garnish and enjoy!
+Shake the gin, simple syrup and lemon juice with ice. Strain into a champagne cup. Top with the sparkling wine, garnish and enjoy!
 
 
 ALCOHOL FREE MARTINI COCKTAIL RECIPE
@@ -143,7 +143,7 @@ Ingredients - 60ml alcoholic-free gin, 15ml alcohol-free dry vermouth (available
 
 Chill your alcohol-free gin and vermouth in the fridge. 
 Add the gin and vermouth to a stirring glass (or shaker) with ice and stir gently. 
-Strain into a chilled martini glass. Squeeze the lemon peel over the cocktail to release its oils, garnish and serve. Enjoy!
+Strain into a chilled martini cup. Squeeze the lemon peel over the cocktail to release its oils, garnish and serve. Enjoy!
 
  
 ALCOHOL FREE MINT-BASIL LIMEADE COCKTAIL RECIPE
@@ -159,7 +159,7 @@ The popular drink is revitalizing, herbal and botanical, and is a great way to l
 Ingredients - 3 large basil leaves, 4 mint leaves, 1 Oz simple syrup, 1 Oz fresh lime juice, soda water, ice cubes
 
 Gently muddle the basil, mint and simple syrup in a shaker tin. Add the lime juice and ice, and shake so it gets chilled. 
-Strain into a class glass over refreshing ice cubes. Top with the club soda. Garnish with a slice of lime.
+Strain into a class cup over refreshing ice cubes. Top with the club soda. Garnish with a slice of lime.
 
  
 ALCOHOL FREE GIMLET COCKTAIL RECIPE
@@ -171,7 +171,7 @@ https://rb.gy/fw5kyz
 Ingredients - 75ml alcoholic-free gin, 15ml lime cordial, Lime slice for garnish
 
 Add the gin and the cordial to a shaker with lots of ice. 
-Shake enough and then pour into a chilled coupe glass. Serve with a slice of lime and enjoy!
+Shake enough and then pour into a chilled cup. Serve with a slice of lime and enjoy!
 
 
 ALCOHOL FREE STRAWBERRY CRUSH COCKTAIL RECIPE
@@ -196,7 +196,7 @@ https://shorturl.at/bgqG1
 
 Ingredients - 50ml alcohol-free gin, 1 teaspoon sugar, Juice of 1 lime, Soda water, mint leaves, mint sprig for garnish
 
-In a glass, muddle the mint leaves, sugar, gin and lime juice. Add ice and pour over the soda water. Garnish, serve and enjoy!
+In a cup, muddle the mint leaves, sugar, gin and lime juice. Add ice and pour over the soda water. Garnish, serve and enjoy!
 
 
 ALCOHOL FREE PORN STAR MARTINI COCKTAIL RECIPE
@@ -209,7 +209,7 @@ Ingredients - 50ml alcoholic-free gin, 9ml vanilla syrup, 1 fresh passion fruit 
 9ml fresh lime juice, alcoholic-free sparkling wine to serve
 
 Add above ingredients apart from the wine and garnish to a cocktail shaker with lots of ice and shake enough. 
-Strain into a chilled coupe glass. Garnish, serve and enjoy!
+Strain into a chilled cup. Garnish, serve and enjoy!
 
 
 (I appreciate MOTHER&BABY and CRAFT GIN CLUB for sharing the above recipes. Please let me know if it goes against the copyright.)
