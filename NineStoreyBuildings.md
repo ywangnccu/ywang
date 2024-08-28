@@ -19,7 +19,7 @@ NINE STOREY BUILDINGS
 ![NINE STOREY BUILDING](https://github.com/ywangnccu/ywang/blob/main/images/9StoreyBuilding/9StoreyBuilding9.jpg)
 
 
-![NINE STOREY BUILDING](https://github.com/ywangnccu/ywang/blob/main/images/9StoreyBuilding/9StoreyBuilding15.jpg)
+![NINE STOREY BUILDING](https://github.com/ywangnccu/ywang/blob/main/images/9StoreyBuilding/9StoreyBuilding15.jpeg)
 
 
 ![NINE STOREY BUILDING](https://github.com/ywangnccu/ywang/blob/main/images/9StoreyBuilding/9StoreyBuilding16.jpg)
