@@ -5,18 +5,18 @@ INTRODUCING PEACH POWDER.........
 
 https://www.myrro.gr/5786-large_default/peach-powder.jpg
 
-    Peach Powder is a vitamins-rich ingredient derived from sun-ripened peaches, celebrated for their sweet flavor. This powder is packed with essential vitamins and minerals, making it a valuable addition to various food applications.
+Peach Powder is a vitamins-rich ingredient derived from sun-ripened peaches, celebrated for their sweet flavor. This powder is packed with essential vitamins and minerals, making it a valuable addition to various food applications.
 
-    Peach Powder is an excellent source of vitamins that support immune function and health. For example, it contains vitamin K that contributes to health. 
-    The dietary fiber content aids digestion and promotes gut health. Peach Powder potentially reduces the risk of chronic diseases.
+Peach Powder is an excellent source of vitamins that support immune function and health. For example, it contains vitamin K that contributes to health. 
+The dietary fiber content aids digestion and promotes gut health. Peach Powder potentially reduces the risk of chronic diseases.
 
 Key Benefits
 
-    It is rich in Nutrients. It has high levels of vitamins, along with dietary fiber. The fiber content promotes digestive health and regularity.
+It is rich in Nutrients. It has high levels of vitamins, along with dietary fiber. The fiber content promotes digestive health and regularity.
 
-    Contains compounds that may help support heart health.
+Contains compounds that may help support heart health.
 
-    Its versatile ingredient is suitable for a range of culinary applications.
+Its versatile ingredient is suitable for a range of culinary applications.
 
 Peach Powder is ideal for a variety of applications.
 
