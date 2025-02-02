@@ -3,7 +3,7 @@ CHIEF CRAZY HORSE
 
 ![CHIEF CRAZY HORSE](https://github.com/ywangnccu/ywang/blob/main/images/CHIEF_CRAZY_HORSE.jpg)
 
-https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSOnTBp2KpsJMJl8fpAjHzqPnot-dQuGE8lanfDXPbrrGlon8YR4lkFVKm5fU2UFmS1R9A&usqp=CAU
+urlgo.co/r/KqDJd
 
 
 Crazy Horse was the chief of the Sioux Nation, a Native American in North America. He fought alongside shaman Sitting Bull. 
