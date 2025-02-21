@@ -1,9 +1,9 @@
-THE AWESOME INSPIRATIONAL QUOTES FROM FORMER PRESIDENT NELSON MANDELA
+THE INSPIRATIONAL QUOTES FROM SOUTH AFRICAN ANTI-APARTHEID ACTIVIST MANDELA
 
 
 ![THE AWESOME INSPIRATIONAL QUOTES FROM FORMER PRESIDENT NELSON MANDELA](https://github.com/ywangnccu/ywang/blob/main/images/Nelson_Mandela.jpg)
 
-https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQaDafmSdeq7ap4gObcReQ0KODBC8CgQzSBNHvhkfY5EJHLRs19Q9jnLqSaAjnlM9pR87M&usqp=CAU
+https://shorturl.at/MFJkc
 
 As a leader, one must sometimes take actions that are unpopular, or whose results will not be known for years to come.
 
