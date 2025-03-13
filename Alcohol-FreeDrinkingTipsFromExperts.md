@@ -24,22 +24,35 @@ https://post.greatist.com/wp-content/uploads/sites/2/2020/10/Papa-Don_t-Peach-Ke
 Ingredients
 
 Thyme syrup
+
 1 cup sugar
+
 1 cup boiling water
+
 4 sprigs thyme
+
 Stir sugar and water together so that sugar is dissolved. Steep thyme in syrup so that it is infused.
 
 Grilled peach syrup
+
 1 cup sugar
+
 1 cup boiling water
+
 2 ripe peaches (sliced, then grilled to caramelized)
+
 Stir sugar and water together so that sugar is dissolved. Transfer mixture to a blender, add peaches, and blend them to liquefied.
 
 Final alcohol-free drink
+
 6 ounces chilled chai tea
+
 2 ounces grilled peach syrup (instructions above)
+
 1 ounce thyme syrup (instructions above)
+
 Sliced peach and thyme sprig, for garnish
+
 Combine tea and both syrups, then garnish with peach and thyme sprig.
 
 Instructions
