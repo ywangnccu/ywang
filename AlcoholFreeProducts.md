@@ -1,6 +1,10 @@
 Alcohol Free Products
 
 
+Ethanol or ethyl alcohol can be problematic for your skin. They dry the skin and cause irritation. They also prevent the absorption of Vitamin A. The lack of Vitamin A promotes premature ageing. 
+The following are some alcohol free products for your reference.
+
+
 ![Alcohol Free Products](https://github.com/ywangnccu/ywang/blob/main/images/AlcoholFreeProduct/AlcoholFreeProduct.jpg)
 
 https://i5.walmartimages.com/asr/fe0d44b2-c774-4bd5-9615-28fe755c0fe5.cfff24e51ed08caae616848d0eab6cf7.jpeg?odnHeight=320&odnWidth=320&odnBg=FFFFFF
