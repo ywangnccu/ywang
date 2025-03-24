@@ -1,4 +1,4 @@
-Spring Season Avocado Peaches Salad
+Spring Seasonal Avocado Peaches Salad
 
 
 By Greg Baker The Refinery Tampa
