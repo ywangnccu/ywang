@@ -44,17 +44,17 @@ Dressing
 
 Instructions
 
-    Layer lettuce, onion, pepper, celery, cabbage and crumbled loin steak into a large baking pan.
+Layer lettuce, onion, pepper, celery, cabbage and crumbled loin steak into a large baking pan.
 
-    In a bowl, stir together mayonnaise, sugar, seasoning and garlic powder. Spread over the top of the salad after the loin steak layer.
+In a bowl, stir together mayonnaise, sugar, seasoning and garlic powder. Spread over the top of the salad after the loin steak layer.
 
-    Top with the shredded cheddar cheese.
+Top with the shredded cheddar cheese.
 
-    Cover the container with plastic wrap and refrigerate for 9 hours.
+Cover the container with plastic wrap and refrigerate for 9 hours.
 
-    Remove from the fridge. Add avocado and pecans (that way they stay crunchy).
+Remove from the fridge. Add avocado and pecans (that way they stay crunchy).
 
-    This is best enjoyed on the first day or else it starts to go soggy.
+This is best enjoyed on the first day or else it starts to go soggy.
 
  
 
