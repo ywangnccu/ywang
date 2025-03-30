@@ -7,7 +7,7 @@ https://m.media-amazon.com/images/I/41sq4fII5ML._AC_UF894,1000_QL80_.jpg
 
     Reduces severity of arthritis and asthma
 
-    Provides Skin Care, moisturizes and smoothes skin
+    Provides Skin Care, moisturizes and smoothies skin
 
     Reduces premature signs of aging
 
