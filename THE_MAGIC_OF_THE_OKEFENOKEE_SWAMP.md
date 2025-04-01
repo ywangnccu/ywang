@@ -6,7 +6,7 @@ THE MAGIC OF THE OKEFENOKEE SWAMP
 https://wanderingdawgs.com/wp-content/uploads/2016/04/20160320stephen-c-foster-tour-10.jpg?w=910&h=606&crop=1
 
 
-The Okefenokee Swamp is a shallow swamp in Georgia. It is the largest swamp in North America. The habitats within the Okefenokee Swamp are diverse and include sandy ridges, grassy savannas, cypress swamps, 
+The Okefenokee Swamp is a shallow swamp in Georgia. It is the largest swamp in North America. The habitats nested along the Okefenokee Swamp are diverse and include sandy ridges, grassy savannas, cypress swamps, 
 meandering canoe trails, small islands, and extensive prairies among many others. There are lots of floating mats of peat, or tree islands that provide a unique habitat for many shrubs and trees. 
 
 These habitats allow for the existence of extremely high levels of biodiversity within the swamp. 
