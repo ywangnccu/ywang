@@ -43,9 +43,9 @@ People across the globe have been impacted by this crime. They usually do not kn
 
 https://static.independent.co.uk/s3fs-public/thumbnails/image/2019/03/21/09/south-korea.jpg?width=1200&height=1200&fit=crop
 
-One victim said, “Finding out I’ve been a victim of revenge porn has happened to me so many times the initial emotions of hurt, fear, anxiety and panic have boiled down over time to just rage. 
+One victim said, Finding out I’ve been a victim of revenge porn has happened to me so many times the initial emotions of hurt, fear, anxiety and panic have boiled down over time to just rage. 
 At the start, I fell into states of isolation to try and protect myself, and even went so far as to change my name. 
-The idea that a minute upload for one person can be years or a life of torment for another is devastating."
+The idea that a minute upload for one person can be years or a life of torment for another is devastating.
 
 
 ![MY LIFE IS NOT YOUR PORN](https://github.com/ywangnccu/ywang/blob/main/images/PORN/MyLifeIsNotYourPorn9.jpg)
