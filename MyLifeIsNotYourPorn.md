@@ -6,7 +6,7 @@ MY LIFE IS NOT YOUR PORN.........
 https://shorturl.at/CILV6
 
 There are no longer any safe places out of the view of spy cameras (hidden cameras) for women. 
-There are spy cameras in many public spaces, such as public restrooms, changing rooms, hotels, and transportation stations to satisfy the desire of voyeurs without the subject’s consent and knowledge. 
+There are spy cameras in many public spaces, such as public restrooms, changing rooms, hotels, and transportation stations to satisfy the desire of crazy voyeurs without the subject’s consent and knowledge. 
 Spy cameras are tiny, easily concealed, and come in different forms including disguised as an ordinary household item such as the calculator, clothing hook, or coffee cup, even hidden in people's houses. 
 They are inexpensive and can operate for extended periods on a battery.
 
