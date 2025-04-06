@@ -33,7 +33,7 @@ If you regret tossing your old Transformers action figures and toy cars, don’t
 However, not every toy will be worth money, and it’s worth noting that there are certain factors that determine the value of an item, 
 including its rarity, age, condition and historical significance. With toys specifically, limited-edition items and popular film merchandise also help increase a toy’s value,” suggests Charman.
 
-Cups or Mugs. 
+Cups or Mugs
 
 As long as they don’t have chips or cracks these can be cleaned and even bleached before you use them.  Or place some plants in them!
 
