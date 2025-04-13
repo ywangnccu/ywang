@@ -19,7 +19,7 @@ Try the following Peach Alcohol-Free Drink recipe.
 
 ![Alcohol-Free Drinking Tips From The Experts](https://github.com/ywangnccu/ywang/blob/main/images/ALCOHOLFREECOCKTAIL.jpg)
 
-https://post.greatist.com/wp-content/uploads/sites/2/2020/10/Papa-Don_t-Peach-Kevin-Ho-1296x728-body.jpg
+https://shorturl.at/r3qso
 
 Ingredients
 
