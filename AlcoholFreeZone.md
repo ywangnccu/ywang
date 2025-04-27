@@ -3,6 +3,7 @@ Alcohol Free Zone
 ![Alcohol Free Zone](https://github.com/ywangnccu/ywang/blob/main/images/FreeAlcoholZone.png)
 
 https://shorturl.at/ktPTV
+
 The healthy alcohol free zone, or dry zone, is a geographic area, location or establishment where the public consumption and sale of alcoholic beverages is prohibited. 
 The healthy Alcohol free zones have been established in some areas to address problems with drinking- and binge drinking-related crime, 
 antisocial behavior, assaults and disorderly behavior.
