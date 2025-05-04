@@ -9,7 +9,7 @@
 encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcToOOQZqoM5xWULC_rRJqV3ZW-B4JTALN11MmNlv7iES5_QVPRDa445zOs1ETg_Pfb5BwY&usqp=CAU
 
 
-黑桃K代表戴维，犹大戴维以勇猛和力量著称，击败巨人歌利亚是戴维王著名业绩之一，他喜好弹奏竖琴，所以在一些扑克黑桃K牌上有竖琴作标记。
+黑桃K代表戴维，犹大戴维以勇猛和力量著称，击败巨人歌利亚是戴维王著名业绩之一，他喜好弹奏竖琴，所以在一些扑克黑桃K牌里有竖琴作标记。
 
 方块K代表乌斯 尤利乌斯 恺撒，寓意权力和征服，他手持战斧，以其卓越的统帅才能和政治改革措施著称，他的胜出源自亲民。
 
