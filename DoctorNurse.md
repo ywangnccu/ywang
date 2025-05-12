@@ -4,7 +4,7 @@ NURSES AND DOCTORS ARE TRUE HEROES AND ANGELS
 ![Doctor Nurse](https://github.com/ywangnccu/ywang/blob/main/images/International-Nurses-Day.jpg)
 
 
-![Doctor Nurse](https://github.com/ywangnccu/ywang/blob/main/images/Doctor_Nurses.jpg)
+![Doctor Nurse](https://github.com/ywangnccu/ywang/blob/main/images/Doctor_Nurse.jpg)
 
 
 THANK YOU SO MUCH FOR EVERYTHING YOU DO!
