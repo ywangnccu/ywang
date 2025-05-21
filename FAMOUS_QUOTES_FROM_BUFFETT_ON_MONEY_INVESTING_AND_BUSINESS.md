@@ -25,4 +25,4 @@ The most important investment you can make is in yourself.
 Risk comes from not knowing what you're doing.
 
 
- (I appreciate the Goodreads for providing the quotes from investor Buffett. Please let me know if it is against the copyright.)
+ (I appreciate Goodreads for providing the quotes from investor Buffett. Please let me know if it is against the copyright.)
