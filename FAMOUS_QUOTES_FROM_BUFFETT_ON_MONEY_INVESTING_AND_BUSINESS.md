@@ -16,7 +16,7 @@ If you buy things you do not need, soon you will have to sell things you need.
 
 It takes twenty years to build a reputation and five minutes to ruin it.
 
-It’s good to learn from your mistakes. It’s better to learn from other people’s mistakes.
+The fact that people are full of greed, fear, or folly is predictable. The sequence is not predictable.
 
 I learned to go into business only with people whom I like, trust, and admire.
 
