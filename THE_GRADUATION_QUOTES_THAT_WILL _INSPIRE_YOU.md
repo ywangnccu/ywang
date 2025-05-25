@@ -15,7 +15,7 @@ The best index to a person’s character is how he treats people who can’t do 
 
 I’ve failed over and over and over again in my life. And that is why I succeed. — Michael Jordan
 
-It is our failure to become of perceived ideal that ultimately defines us and makes us unique. — Conan O’Brien
+It is our failure to become our perceived ideal that ultimately defines us and makes us unique. — Conan O’Brien
 
 Every person you meet knows something you don’t—learn from them.  — Horace Jackson Brown, Jr
 
