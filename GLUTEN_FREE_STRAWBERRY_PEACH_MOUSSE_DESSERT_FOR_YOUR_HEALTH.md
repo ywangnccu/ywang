@@ -3,7 +3,7 @@ GLUTEN FREE STRAWBERRY PEACH MOUSSE DESSERT FOR YOUR HEALTH
 
 ![GLUTEN FREE STRAWBERRY PEACH MOUSSE DESSERT FOR YOUR HEALTH](https://github.com/ywangnccu/ywang/blob/main/images/StrawberryPeachMousse.jpg)
 
-encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT2qcSD6hmtwkqPDDoGDKR7cCVUMjeuOKgXjdVpvUpT5p-yIks6qWMSHKd8ETaNnzjlzVI&usqp=CAU
+https://is.gd/JMGHf9
 
 Ingredients
 
