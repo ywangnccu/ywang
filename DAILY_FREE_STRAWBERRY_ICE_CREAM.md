@@ -3,7 +3,7 @@ DAILY FREE STRAWBERRY ICE CREAM.........
 
 ![DAILY FREE STRAWBERRY ICE CREAM](https://github.com/ywangnccu/ywang/blob/main/images/STRAWBERRY_ICE_CREAM.jpg)
 
-https://i.guim.co.uk/img/media/3fd6161c0a2e8f4b75b04cd2d724d82df05a0b3c/562_1230_3042_3846/master/3042.jpg?width=700&quality=85&auto=format&fit=max&s=0bf856d363f909681fc70cea8bb40be1
+https://is.gd/6NiHhv
 
 Ingredients
 
