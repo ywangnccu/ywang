@@ -1,7 +1,7 @@
-PYRAMIDS EDGE HOTE 介绍金字塔边缘酒店
+PYRAMIDS EDGE HOTEL 介绍金字塔边缘酒店
 
 
-![PYRAMIDS EDGE HOTE 介绍金字塔边缘酒店](https://github.com/ywangnccu/ywang/blob/main/images/PYRAMIDS_EDGE_HOTEL.jpg)
+![PYRAMIDS EDGE HOTEL 介绍金字塔边缘酒店](https://github.com/ywangnccu/ywang/blob/main/images/PYRAMIDS_EDGE_HOTEL.jpg)
 
 You are where you need to be just to breathe. The Pyramids Edge Hotel rooms have a comfortable size. Enjoy the wonderful view of the great pyramids with full view in Egypt from a balcony. 
 These rooms feature quality fittings and tastefully wooden furnishings. It is just a foot step from the main rooftop terrace where the beautiful dining place is. You will enjoy the delicious food and take pictures of the terrific pyramids.
