@@ -3,7 +3,7 @@ NINE ITEMS YOU SHOULD BUY AT THE THRIFT STORE
 
 ![NINE ITEMS YOU SHOULD BUY AT THE THRIFT STORE](https://github.com/ywangnccu/ywang/blob/main/images/ThriftStore.jpg)
 
-Thrift stores are the ultimate in sustainability—they are a way to reuse and repurpose someone’s cast-offs and save them from the landfill. However, thrifting is also undeniably fun. 
+Thrift stores are the ultimate in sustainability—they are a way to reuse and repurpose someone’s obsolete cast-offs and save them from the landfill. However, thrifting is also undeniably fun. 
 It’s a treasure hunt for grown-ups where you can find rare and useful items that will make your place unique and personality-filled, allowing your decor to stand apart from the pack.
 
 "I’m the kind of person who doesn't even go to a regular store; I just go to thrift stores," says the owner of Urban Redeux. "You can pick up so much stuff, and almost anything you need you can buy at a thrift store." 
