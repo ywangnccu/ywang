@@ -3,7 +3,7 @@ SELECTING THE RUBBER GLOVES GUIDE.........
 
 ![SELECTING THE RUBBER GLOVES GUIDE](https://github.com/ywangnccu/ywang/blob/main/images/gloves.jpg)
 
-https://is.gd/CDcHr9
+ (I appreciate The Edge Malaysia for providing the above picture. Please let me know if it is against the copyright.)
 
 Choosing the right rubber gloves, consider the material, size, and intended use. Nitrile gloves are often preferred for their durability and chemical resistance, 
 while latex gloves offer better dexterity. Ensure a snug, comfortable fit, and no potential allergies.
