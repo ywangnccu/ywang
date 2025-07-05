@@ -25,7 +25,7 @@ Mix graham cracker crumbs with cooking oil in a bowl, evenly combined. Spoon gra
 
 Place 1 chocolate square piece onto each crust and top each with 3 miniature marshmallows.
 
-Bake in the preheated oven about 6 minutes so marshmallows are puffy and chocolate is melted.
+Bake in the preheated oven for about 6 minutes so marshmallows are puffy and chocolate is melted.
 
 
 
