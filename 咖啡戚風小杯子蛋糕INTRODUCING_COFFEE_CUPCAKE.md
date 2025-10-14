@@ -1,4 +1,4 @@
-咖啡戚風小杯子蛋糕 INTRODUCING COFFEE CUPCAKE
+咖啡戚風小杯子蛋糕 INTRODUCING COFFEE CUP CAKE FOR YOUR DESSERT OR SNACK
 
 
 ![咖啡戚風小杯子蛋糕](https://github.com/ywangnccu/ywang/blob/main/images/CoffeeCupCake.jpg)
