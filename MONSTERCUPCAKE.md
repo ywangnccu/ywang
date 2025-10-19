@@ -1,7 +1,7 @@
-INTRODUCING MONSTER CUPCAKE FOR YOUR SNACK
+INTRODUCING SCARY MONSTER CUPCAKE FOR SNACK
 
 
-![INTRODUCING MONSTER CUPCAKE FOR YOUR SNACK](https://github.com/ywangnccu/ywang/blob/main/images/MonsterTruffleCupcakes.jpg)
+![INTRODUCING SCARY MONSTER CUPCAKE FOR SNACK](https://github.com/ywangnccu/ywang/blob/main/images/MonsterTruffleCupcakes.jpg)
 
 Ingredients
 
