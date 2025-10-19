@@ -7,7 +7,7 @@ Ingredients
 
 Chocolate pudding ingredients
 
-1/4 cup cornstarch, 1/2 cup granulated sugar, 1/3 cup unsweet cocoa powder, 2 1/4 cups half and half, 1 tablespoons oil, 1 teaspoon vanilla extract, 1/4 teaspoon fine grain salt
+1/4 cup cornstarch, 1/2 cup granulated sugar, 1/3 cup unsweetened cocoa powder, 2 1/4 cups half and half, 1 tablespoons oil, 1 teaspoon vanilla extract, 1/4 teaspoon fine grain salt
 
 Dirt topping ingredients
 
@@ -43,7 +43,7 @@ Strawberry carrots instructions
 
 Skewer each strawberry through the top. Place on a parchment-lined baking sheet.
 
-Melt the candy in a microwave-safe bowl in the microwave at full power in half minute intervals. Stir well between heating times, the candy will be melted and smooth. About one and a half minute.
+Melt the candy in a microwave-safe bowl in the microwave at full power in half minute intervals. Stir well between heating times, the candy will be melted and smooth. About one and a half minutes.
 
 Dip strawberries into the melted candy up to the greens. Allow the excess candy to drip back into the bowl. Transfer back to the parchment-lined baking sheet. Repeat with remaining strawberries. Allow the candy to set, about 15 minutes.
 
