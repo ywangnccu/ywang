@@ -1,7 +1,7 @@
 INTRODUCING LIGHT POLLUTION 
 
 
-![INTRODUCING LIGHT POLLUTION}(https://github.com/ywangnccu/ywang/blob/main/images/LIGHT_POLLUTION.png)
+![INTRODUCING LIGHT POLLUTION](https://github.com/ywangnccu/ywang/blob/main/images/LIGHT_POLLUTION.png)
 
 (I appreciate Luis Sinco for providing the above picture. Please let me know if it is against copyright.)
 
