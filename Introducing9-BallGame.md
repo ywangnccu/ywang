@@ -9,7 +9,7 @@ The 9-ball game is often associated with hustling and gambling, with tournaments
 The cue ball that is usually a solid shade of white, is struck to hit the 9 object balls that are numbered 1 through 9, each a distinct color, with the 9 ball typically having a yellow stripe on a white base. 
 The aim of the game is to hit the lowest numbered ball on the table and pocket balls in succession to eventually pocket the 9-ball. 
 As long as the lowest numbered ball on the table is contacted first by the cue ball, and any one or more of the object balls are pocketed in any of the pockets with no foul being committed, 
-a player's inning continues. When the table passes to another player, they must play from where the balls were last positioned, except if the prior inning ended in a foul. In that case, the incoming player can take the ball and put it anywhere on the table. 
+a player's inning continues. When the table passes to another player, they must play from where the balls were last positioned, except if the prior inning ended in a foul. In that case, the incoming player can pick the ball and put it anywhere on the table. 
 The winner is the player who legally pockets the 9-ball, the game's moneyball, regardless of how many balls have been pocketed before. 
 This can happen earlier than the 9-ball being the sole remaining object ball on the table if it is pocketed via a combination or other indirect method.
 
