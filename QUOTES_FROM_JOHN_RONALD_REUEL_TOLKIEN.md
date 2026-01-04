@@ -8,9 +8,9 @@ QUOTES FROM THE BOOKS OF JOHN RONALD REUEL TOLKIEN
 
 The world is full enough of hurts and mischances without wars to multiply them.
 
-There are some things that time cannot mend. Some hurts that go too deep.
+There are some things that time cannot mend. 
 
-There is nothing like looking, if you want to find something.
+In this hour, I do not believe that any darkness will endure.
 
 It is useless to meet revenge with revenge; it will heal nothing.
 
