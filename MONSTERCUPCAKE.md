@@ -19,6 +19,6 @@ Unwrap your truffles and generously dip one end into each color and place on top
 
 Add candy eyes and colorful sprinkles on their heads.
 
-Enjoy the monster cupcake.
+You can make a batch of the monster cupcakes quickly.
 
 (I appreciate Sugar & Cloth for introducing the monster cupcake recipe and providing its picture. Please let me know if it is against copyright.)
