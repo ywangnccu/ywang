@@ -49,7 +49,7 @@ Dip strawberries into the melted candy up to the greens. Allow the excess candy 
 
 Place the leftover melted candy in a disposable piping bag and snip a tiny hole in the end. Drizzle melted candy over the strawberries in zigzag fashion to mimic the appearance of the carrot’s textured lines. Allow the candy to set, about 15 minutes.
 
-Place a strawberry carrot on top of each pudding cup. Refrigerate it in the refrigerator for up to 60 hours. Serve with mini shovel dessert spoons for a fun presentation.
+Place a strawberry carrot on top of each pudding cup. Refrigerate a batch of dirt cups for up to 60 hours. Serve with mini shovel dessert spoons for a fun presentation.
 
 
 (I appreciate Sprinkle Bakes for introducing the Chocolate Pudding Dirt Cups recipe and providing its picture. Please let me know if it is against copyright.)
