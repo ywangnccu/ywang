@@ -5,7 +5,7 @@ We visited several tourist parks years ago and took pictures of the following ch
 
 ![介绍神奇巨石](https://github.com/ywangnccu/ywang/blob/main/images/Rock/GrandCanyon.JPG)
 
-GRAND CANYON
+GRAND CANYON PARK
 
 
 
@@ -17,7 +17,7 @@ GRAND CANYON
 
 ![介绍神奇巨石](https://github.com/ywangnccu/ywang/blob/main/images/Rock/Arches.JPG)
 
-ARCHES
+ARCHES NATIONAL PARK
 
 
 
@@ -33,7 +33,7 @@ BALANCED ROCK
 
 ![介绍神奇巨石](https://github.com/ywangnccu/ywang/blob/main/images/Rock/BryceCanyon.JPG)
 
-BRYCE CANYON ROCK
+BRYCE CANYON PARK
 
 
 
@@ -51,4 +51,4 @@ CAPITOLREEF
 
 ![介绍神奇巨石](https://github.com/ywangnccu/ywang/blob/main/images/Rock/HorseshoeBayRock.JPG)
 
-HORSESHOE BAY ROCK
+HORSESHOE BEND ROCK
