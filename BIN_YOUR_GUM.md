@@ -1,7 +1,7 @@
-BIN YOUR GUM
+PLEASE BIN YOUR CHEWED GUM.........
 
 
-Discarding chewing gum on public streets is generally prohibited and might receive fines or other penalties depending on local regulations.
+Discarding chewing gum on public streets and properties is one of the nastiest actions that is prohibited. It might receive fines or other penalties depending on local regulations.
 
 Beyond the potential legal ramifications, throwing chewing gum on the public roads has several negative consequences.
 
