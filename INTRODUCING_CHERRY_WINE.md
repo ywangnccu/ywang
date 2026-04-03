@@ -1,7 +1,7 @@
 介绍制作健康樱桃酒.........
 
 
-樱桃又称作车厘子，有健康丰富营养价值，以下介绍制作樱桃酒方法。
+樱桃又称作车厘子，有丰富营养保健价值，以下介绍制作樱桃酒方法。
 
 
 ![介绍自己制作樱桃酒](https://github.com/ywangnccu/ywang/blob/main/images/CherryWine1.jpg)
