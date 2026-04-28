@@ -2,7 +2,7 @@ EVERY MOTHER IS TRULY A PHENOMENAL PERSON
 
 
 
-![EVERY MOTHER IS TRULY A PHENOMENAL PERSON](https://github.com/ywangnccu/ywang/blob/main/images/MotherSon.jpg)
+![EVERY MOTHER IS TRULY A PHENOMENAL PERSON](https://github.com/ywangnccu/ywang/blob/main/images/MotherSon .jpg)
 
 
 ![EVERY MOTHER IS TRULY A PHENOMENAL PERSON](https://github.com/ywangnccu/ywang/blob/main/images/Mother_Daughter.jpg)
@@ -11,7 +11,7 @@ EVERY MOTHER IS TRULY A PHENOMENAL PERSON
 (I appreciate SDA and Julie for providing the above pictures. Please let me know if it is against copyright.)
 
 Every mom is truly a phenomenal person. She is the one that knows you even more than you know yourself. You can tell her everything. Your secrets will be safe with her. Even if sometimes it’s hard to tell, 
-she is thinking of what is best for you. Mom has the experience. It is sometimes better than knowledge. She will never judge or ridicule, only listen and give the great advice. In good or bad times, she will never leave you alone. 
+she is thinking of what is best for you. Mom has the experience. It is sometimes better than knowledge. She will never judge or ridicule, only listen and give great advice. In good or bad times, she will never leave you alone. 
 You can call her endless times and she will be more than happy to talk with you. She will never try to do something that could hurt you, and she will forgive you for almost everything. 
 It doesn’t matter what you look like – your mom will accept you. She will support you and protect you. She cares more for you than she does for herself. She is the person you can count on the most and is trying to help you - she is even willing to give her life for yours. 
 She’s the one that raised you. She’s known you and put up with you since your birth. She will be honest with you and she will make the greatest effort for you. The only thing she asks for in return is no harm. Your mom loves you more than anyone else could!
