@@ -2,7 +2,7 @@ EVERY MOTHER IS TRULY A PHENOMENAL PERSON
 
 
 
-![EVERY MOTHER IS TRULY A PHENOMENAL PERSON](https://github.com/ywangnccu/ywang/blob/main/images/MotherSon .jpg)
+![EVERY MOTHER IS TRULY A PHENOMENAL PERSON](https://github.com/ywangnccu/ywang/blob/main/images/MotherSon.jpg)
 
 
 ![EVERY MOTHER IS TRULY A PHENOMENAL PERSON](https://github.com/ywangnccu/ywang/blob/main/images/Mother_Daughter.jpg)
