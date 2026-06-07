@@ -17,3 +17,13 @@ It has become a popular stop for specialized tours that offer panoramic views of
 visitors can clearly gaze at other Kabul landmarks, including the gorge and the mountain range.
 
 (I appreciate Google AI and Swissinfo for introducing the Afghanistan Television Mountain. Please let me know if it is against copyright.)
+
+
+介绍阿富汗的电视山
+
+阿富汗电视山位在喀布尔以南的山里，因山顶林立密布着广播和电视发射天线得名。这座电视山在当地极具辨识度，它是阿富汗媒体发展的重要枢纽，同时是阿富汗长年战乱、政治更迭和社会分化的显著地标。阿富汗的电视事业在上世纪90年代因战乱被打断，
+直到塔利班首次倒台后才逐步恢复。电视山是承载阿富汗广播电视重生的基建枢纽。2025年，阿富汗塔利班以防止犯罪为由，关闭过光纤网路，通讯曾停摆，9千个左右电讯基地台暂时停止运作，几乎所有产业都被牵涉到。在基础建设有限的阿富汗，多个广播电视和电话共用光纤长期处在极慢或断线状态。
+9350公里的光纤是阿富汗和世界接轨、脱离贫困的重要建设。这些光纤大多系美国支持的前政府所建置。
+
+
+（感谢纽约时报和瑞士资讯介绍阿富汗电视山，若有侵权请告知。）
