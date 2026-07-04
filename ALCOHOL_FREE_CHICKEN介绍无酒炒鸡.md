@@ -4,7 +4,7 @@ INTRODUCING ALCOHOL FREE CHICKEN RECIPE
 
 
 
-![INTRODUCING ALCOHOL FREE CHICKEN RECIPE]{https://github.com/ywangnccu/ywang/blob/main/images/ALCOHOL_FREE_CHICKEN.jpg}
+![INTRODUCING ALCOHOL FREE CHICKEN RECIPE](https://github.com/ywangnccu/ywang/blob/main/images/ALCOHOL_FREE_CHICKEN.jpg)
 
 (I appreciate Cookies and Cups for providing the above image. Please let me know if it is against copyright.)
 
