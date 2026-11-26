@@ -59,7 +59,7 @@ THE ARTIST IS THANKFUL FOR COLOR AND LIGHT
 THE DANCER IS THANKFUL FOR THE BEAUTIFUL MUSIC
 
 
-![祝福感恩节快乐](https://github.com/ywangnccu/ywang/blob/main/images/Thankful/Teacher.jpg)
+![祝福感恩节快乐](https://github.com/ywangnccu/ywang/blob/main/images/Thankful/Teacher.png)
 
 AND ME
 
