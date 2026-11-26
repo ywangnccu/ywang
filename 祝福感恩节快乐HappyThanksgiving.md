@@ -14,7 +14,7 @@ THE LOCAL REPORTER IS THANKFUL FOR INTERESTING NEWS
 THE GARDENER IS THANKFUL FOR GREEN PLANTS AND BEAUTIFUL FLOWERS
 
 
-![祝福感恩节快乐](https://github.com/ywangnccu/ywang/blob/main/images/Thankful/Severs.jpg)
+![祝福感恩节快乐](https://github.com/ywangnccu/ywang/blob/main/images/Thankful/Servers.jpg)
 
 THE SERVERS ARE THANKFUL FOR COMFORTABLE CLOTHES
 
